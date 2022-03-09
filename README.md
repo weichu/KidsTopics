@@ -1,2 +1,2 @@
 # KidsTopics
-topics for kids usually before bedtime 
+topics for kids before bedtime 
